@@ -1,2 +1,2 @@
-# savagemedia.com
-Greatness awaits the hardship.
+# savagemedia728.com
+Greatness Awaits the Hardship.
